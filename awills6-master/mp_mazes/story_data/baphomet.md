@@ -1,0 +1,1 @@
+You go over and take a look at the baphomet statue. You become hypnotized by its eyes, which are stranglely lifelike. After a few minutes the pupils seem to dilate and you're pretty sure yours do as well. It's a good statue. You stand there for several hours at which point you die suddenly due to hemorrhaging of your vertebral artery. Happens!
